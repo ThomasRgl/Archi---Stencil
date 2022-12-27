@@ -1,1 +1,1 @@
-# Archi---Stencil
+# Archi-Stencil
